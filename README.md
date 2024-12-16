@@ -1,4 +1,4 @@
-#Vista de pestañas y video explicativo
+Vista de pestañas y video explicativo
 https://drive.google.com/drive/folders/1CHbjohP_pfolxtJpuAHDyTfw4YA5iWOX?usp=drive_link (Video explicativo)
 
 VENTANAS DE ACCESO CON ROL (GERENTE)
